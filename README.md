@@ -1,1 +1,0 @@
-# MouseWalkerJove-Residuals_Analysus
